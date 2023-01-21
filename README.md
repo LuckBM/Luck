@@ -1,3 +1,3 @@
 # Luck
 
-![image](https://user-images.githubusercontent.com/116355056/213888240-d2eee2f4-1960-4b0c-9ea5-01a33a96c774.png)
+https://i.pinimg.com/originals/4e/f9/b6/4ef9b6d7a4633c234712e1a243cb2f90.gif
